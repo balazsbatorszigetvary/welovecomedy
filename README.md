@@ -4,7 +4,8 @@ Contributed to a Real-World Collaboration with a Top-Rated Upwork Freelancer. Wh
 
 ![image](https://github.com/balazsbatorszigetvary/welovecomedy_real-world-project/assets/129226735/1a8cec19-7cf1-4e44-b34b-152c0e8a7fd7)
 
-![image](https://github.com/balazsbatorszigetvary/welovecomedy_real-world-project/assets/129226735/469a04ee-e6c0-4ab3-88ab-d412a2bd4ced)
+![image](https://github.com/balazsbatorszigetvary/welovecomedy_real-world-project/assets/129226735/ec4adae8-0c3b-4578-8fed-9edf478ba14f)
+
 
 ![image](https://github.com/balazsbatorszigetvary/welovecomedy_real-world-project/assets/129226735/0c9c0b32-ea3a-4dfe-ad1a-9afdc74fb60e)
 
