@@ -20,6 +20,9 @@ Contributed to a Real-World Collaboration with a Top-Rated Upwork Freelancer. Wh
 
 ![image](https://github.com/balazsbatorszigetvary/welovecomedy_real-world-project/assets/129226735/f55d7e5e-d00c-4585-8a30-d373d58ac419)
 
+![image](https://github.com/balazsbatorszigetvary/welovecomedy_real-world-project/assets/129226735/4bc81ecc-f5fc-4ba6-9eec-be8570c48495)
+
+
 
 
 
